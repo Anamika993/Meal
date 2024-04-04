@@ -1,0 +1,10 @@
+![Screenshot (32)](https://github.com/Anamika993/Meal/assets/80275015/5886ee42-b7d9-4910-a24d-4690cbcdd9ed)
+![Screenshot (34)](https://github.com/Anamika993/Meal/assets/80275015/1de498ca-4de6-40e9-9edb-638036bee61c)
+![Screenshot (33)](https://github.com/Anamika993/Meal/assets/80275015/d083111a-9fa1-4e16-941e-a993fb3e2617)
+![Screenshot (35)](https://github.com/Anamika993/Meal/assets/80275015/5689f99a-f123-4daf-b64c-a10fbef803b2)
+![Screenshot (37)](https://github.com/Anamika993/Meal/assets/80275015/b34e3ca0-e94e-44ec-a29e-4091b115d0b2)
+![Screenshot (38)](https://github.com/Anamika993/Meal/assets/80275015/3be439d1-31ee-4e32-bdc0-28ae2f9013ce)
+![Screenshot (39)](https://github.com/Anamika993/Meal/assets/80275015/c518674c-26bc-4707-bf8a-e0358d19c03e)
+![Screenshot (40)](https://github.com/Anamika993/Meal/assets/80275015/9dc87285-540a-4acd-a785-2af83a476a29)
+
+![Screenshot (42)](https://github.com/Anamika993/Meal/assets/80275015/64bcb0ab-36b9-409e-9ce8-63b531994184)
